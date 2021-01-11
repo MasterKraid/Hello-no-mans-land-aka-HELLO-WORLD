@@ -14,4 +14,4 @@ oh and hi i am Kraid from the Universe of sarcastic philosophy no from the Unive
 i am learing front end devolopment and am pretty(was this supposed to be here tho-) good at "C" prgramming and python and has some knowledge in js 
 Oh yes why not speak of Html? Good enough right? OWO? 
 
-#HAVE A FREAKING AWESOME DAY FELLOW READER!
+# HAVE A FREAKING AWESOME DAY FELLOW READER!
